@@ -1,1 +1,1 @@
-# denis lalka
+# denis palka
